@@ -1,1 +1,1 @@
-![](https://media.tenor.com/b9_3aZ4FLOkAAAAM/black-man-staring.gif)
+![](https://media1.tenor.com/m/Vj9Nc8OC6ZUAAAAC/poke-baymax.gif)
